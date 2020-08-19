@@ -14,7 +14,7 @@ What did i do?
 Our Company The Right Job is  transparent and works with all highest number of IT companies.You will find the authentic direct from customers and also you’ll find top class IT companies who provide IT product or services.We’ve Compiled thousands of real company reviews from real employees which will make you more educated to chose the right decision. 
  
 Pros 
-✔️Quick & Easy to deal with.\n
+✔️Quick & Easy to deal with.
 ✔️Rating and Reviews from direct Company employee.
 ✔️Customer friendly and instant response.
 ✔️Defines work hour, Salary and other facilities clearly. 
